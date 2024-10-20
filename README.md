@@ -42,3 +42,7 @@ I'm always eager to learn and explore new technologies. Whether it's trying out 
 Feel free to reach out if you'd like to discuss tech, collaborate on projects, or simply say hello!
 
 Happy coding! 🎉
+
+
+chnages
+lwdcmdk
